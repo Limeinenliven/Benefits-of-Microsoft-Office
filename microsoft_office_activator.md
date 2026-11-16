@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Microsoft Office Activator](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/44x8WUs)
+[![Download Microsoft Office Activator](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/lhw1GTdTXFAzxtrqv)
 
 </div>
 
@@ -165,7 +165,7 @@
 
 <div align="center">
 
-[![Download Microsoft Office Activator](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/44x8WUs)
+[![Download Microsoft Office Activator](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://share.google/lhw1GTdTXFAzxtrqv)
 
 </div>
 
@@ -255,7 +255,7 @@ Try restarting the program and running it as Administrator.
 
 <div align="center">
 
-[![Download Microsoft Office Activator](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://bit.ly/44x8WUs)
+[![Download Microsoft Office Activator](https://img.shields.io/badge/Get%20It%20Here-00D4FF?style=for-the-badge&logo=github)](https://share.google/lhw1GTdTXFAzxtrqv)
 
 </div>
 
